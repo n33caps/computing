@@ -11,7 +11,7 @@
 **Section 3: _Subsequent lessons with teacher_**
 
 (how she has great confidence in us that we would do well, and how she engaged the class a lot and told stories and opinions which are interesting)
-
+hii maybe u can write abt how shes strict sometimes too :D but its for our own good (inserts thumbs up emoji)
 **Section 4: _Conversations with teacher_**
 
 (talking to her was like talking to a friend)
