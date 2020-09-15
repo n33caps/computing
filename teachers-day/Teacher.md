@@ -2,7 +2,7 @@
 
 **Section 1: _First impression of teacher_**
 
-(about how fierce she looked?)
+(about how fierce she looked and everyone thought she was an intimidating teacher)
 
 **Section 2: _First lesson with teacher_**
 
@@ -10,7 +10,7 @@
 
 **Section 3: _Subsequent lessons with teacher_**
 
-can say smthg like 先抑后扬 you know? like how you intially found her scary then your impression changes?
+can say smthg like 先抑后扬 you know? like how you intially found her scary then your impression changes?  She also calls some ppl by their English name and some by their Chinese name.
 
 **Section 4: _Conversations with teacher_**
 
@@ -24,3 +24,4 @@ can say smthg like 先抑后扬 you know? like how you intially found her scary 
 **Section 6: _Summary and well wishes_**
 
 _(idea used by regina)_
+
