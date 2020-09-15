@@ -23,5 +23,8 @@ can say smthg like 先抑后扬 you know? like how you intially found her scary 
 
 **Section 6: _Summary and well wishes_**
 
-_(idea used by regina)_
+_(idea used by Regina and Jody)_
+
+=======
+Thank you Mdm Sim!
 
