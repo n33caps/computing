@@ -10,7 +10,7 @@
 
 **Section 3: _Subsequent lessons with teacher_**
 
-can say smthg like 先抑后扬 you know? like how you intially found her scary then your impression changes?  She also calls some ppl by their English name and some by their Chinese name.
+can say smthg like 先抑后扬 you know? like how you intially found her scary then your impression changes?  She also calls some ppl by their English name and some by their Chinese name. (hAi also like maybe how she would chase after us for homework and expectations for exams etc iDK sorry if this is crappy :p)
 
 **Section 4: _Conversations with teacher_**
 
